@@ -4,4 +4,4 @@ Sou uma profissional em constante desenvolvimento, dedicada a aprimorar minhas h
 
 ## Citação Favorita
 
-> "A persistência é o caminho do êxito." - Charles Chaplin
+> "A persistência é o caminho do êxito." - Charles Chaplin.
